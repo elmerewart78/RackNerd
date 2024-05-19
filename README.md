@@ -9,7 +9,8 @@ RackNerd, a prominent hosting provider, is offering several promotional annual V
 [Click to view the latest promotions on the official website of RackNerd](https://my.racknerd.com/aff.php?aff=11397)
 
 ## RackNerd Promotional Code
-- **Annual Plans Starting at $11.49:** [Click to view the latest promotions on the official website of RackNerd](https://my.racknerd.com/aff.php?aff=11397)
+- **Annual Plans Starting at $11.49:**
+-  [Click to view the latest promotions on the official website of RackNerd](https://my.racknerd.com/aff.php?aff=11397)
 
 ## RackNerd Promotional Offer
 
